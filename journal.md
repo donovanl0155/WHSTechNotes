@@ -1,7 +1,7 @@
 # August 27, 2025 
 Today, I created my first GitHub account and repository. I'm excited to start using GitHub for my projects!
 # September 2, 2025 
-Now with PHONES [[HYPERLINK BLOCKED]], we have a chance to be [[BIG SHOTS!!!!]] 
+Vibe coding can be both good and bad. On one hand, it can 
 # September 8, 2025
 idk go give spamton some kromer he needs it
 # September 15, 2025
