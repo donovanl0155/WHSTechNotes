@@ -5,6 +5,8 @@ Vibe coding can be both good and bad. On one hand, it can
 # September 8, 2025
 idk go give spamton some kromer he needs it
 # September 15, 2025
-my idea is for spamton g spamton to run the government >:)
+well evendly needs it cus they just shut down. 
+# September 22, 2025
+whut the actual heck roblox has gone too far. we need people doing REAL JOBS, not some in-game irrelavant stuff. While this could be used for employee training, having people getting paid for litterally playing a video game is wild.
 # September 30, 2025
 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67
