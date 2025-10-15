@@ -10,3 +10,5 @@ well evendly needs it cus they just shut down.
 whut the actual heck roblox has gone too far. we need people doing REAL JOBS, not some in-game irrelavant stuff. While this could be used for employee training, having people getting paid for litterally playing a video game is wild.
 # September 30, 2025
 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67
+# October 14, 2025
+https://undertaleaus.my.canva.site/
