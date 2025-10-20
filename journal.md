@@ -12,3 +12,9 @@ whut the actual heck roblox has gone too far. we need people doing REAL JOBS, no
 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67 67
 # October 14, 2025
 https://undertaleaus.my.canva.site/
+# October 20, 2025
+| Name     | Class | Seat |
+| :------- | :---- | :--- |
+| Franklin |Second |  91A |
+| Hardeep  |Third  |  61F |
+| Marla    | First |  35B |
