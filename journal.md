@@ -18,3 +18,8 @@ https://undertaleaus.my.canva.site/
 | Franklin |Second |  91A |
 | Hardeep  |Third  |  61F |
 | Marla    | First |  35B |
+# October 27, 2025
+| name    | main dish |  dessert |
+| ----------- | ----------- |-----|
+|Fiona    |Gado gado|creme brulee|
+|| Text        ||
